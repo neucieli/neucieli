@@ -1,7 +1,7 @@
 - 👋 Hi, eu  m e  me chamo neucielli
-- 👀  estudante do enino medio  na instituicao  tiradentes
-- 🌱 estou aprndendo a lidar com as diferentes progrmacoes 
-- 💞️ I’m looking to collaborate on  com noas atividades da plataforma 
+- 👀  estudante do ensino medio  na instituiçao  tiradentes
+- 🌱 estou aprendendo a lidar com as diferentes programacoes 
+- 💞️ I’m looking to collaborate on  com novas atividades da plataforma 
 - 📫 How to reach me ...
 -  gmail; neuciele.silva@escola.pr.gov.br
 
